@@ -43,4 +43,4 @@
 ---
 
 
-For more info, see https://drive.google.com/file/d/1STGE3Cn_XrfU6sBD9p5OQWb3hnUyxZrj/view?usp=sharing for a user manual video.
+For more info, see https://drive.google.com/file/d/1yaVrWrG66ledoCM5g6ISu_tC9fZHKmq9/view?usp=sharing for a user manual video.
